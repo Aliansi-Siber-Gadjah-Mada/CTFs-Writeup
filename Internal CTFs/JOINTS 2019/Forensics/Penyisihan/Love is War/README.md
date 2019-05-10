@@ -2,17 +2,14 @@
 
 ### Description
 
->  Commonly, everyone believes that ..
-.. Confessing your love and becoming a couple ..
-.. Falling for someone ..
-Is the most wonderful things in the world
- But, **THEY'RE WRONG!**
-Because, `LOVE IS WAR`
-That's mean, `THE ONE WHO CONFESSES THEIR LOVE FIRST LOSES!`
+>  Commonly, everyone believes that .. <br>
+.. Confessing your love and becoming a couple .. <br>
+.. Falling for someone .. <br>
+Is the most wonderful things in the world. But, **THEY'RE WRONG!**<br>
+Because, `LOVE IS WAR`<br>
+That's mean, `THE ONE WHO CONFESSES THEIR LOVE FIRST LOSES!`<br>
 Here's another Love and Brains war of Kaguya-sama along with her dere-confession?!<br><br>
-****Kaguya-sama Wants to Be Figured Out****
-<br>
-On a quiet night, Kaguya-sama thinks of an idea for agitating the inner thought of Prez
+****Kaguya-sama Wants to Be Figured Out****<br>On a quiet night, Kaguya-sama thinks of an idea for agitating the inner thought of Prez
 In other words, the `Prez's love confession`.<br><br>
 Kaguya   : Ara..ara, Prez. Are you familiar with Twenty question game?<br>
 Prez     : Ah, yeah. ****Gulp****<br>
